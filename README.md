@@ -7,7 +7,7 @@
 
 
 
-### Resido en **España**📍 . Busco adentrarme en el mundo de la programación con la idea de cambiar de sector y compatibilizar el trabajo online con mis estudios universitarios (_grado en criminología_). **Estudiante** del Bootcamp de Programación de **Undefined Academy** 🏫.
+### Resido en **España**📍 . Busco adentrarme en el mundo de la programación con la idea de cambiar de sector y compatibilizar el trabajo online con mis estudios universitarios (_grado en criminología_). **Estudiante** del Bootcamp de Programación de **Undefined Academy** y **Open Bootcamp** 🏫.
 
 #
 #
